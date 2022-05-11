@@ -1,0 +1,1 @@
+Đơn hàng của bạn đã được xác nhận. Cảm ơn bạn đã đặt hàng bên cửa hàng chúng tôi.Bên giao hàng sẽ sớm liên hệ với bạn.
